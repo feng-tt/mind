@@ -1,4 +1,4 @@
-# Mathematical modeling mind
+# 🍕Mathematical modeling mind
 *save my daily mind*
 
 
